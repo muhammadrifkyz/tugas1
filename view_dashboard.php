@@ -1,0 +1,11 @@
+<h1>sejarah kopi</h1>
+<p>
+Biji tanaman kopi dipanggang lalu dihaluskan dan dihidangkan. Metode pemanggangan biji kopi sendiri belum diketahui kapan dimulainya. Namun tanaman kopi berasal dari dataran tinggi di Ethiopia, yang pada saat itu merupakan tanaman liar di Ethiopia. Lalu tanaman kopi dari sini dikembangkan di Semenanjung Arab sekitar abad ke-15, yang terkenal menjadi Kopi Arabika. Kopi Arabika saat ini menjadi jenis kopi yang paling banyak diproduksi di dunia yaitu mencapai lebih dari 60 persen produksi kopi dunia.
+
+Menurut legenda, kopi ditemukan oleh seorang pemuda Arab bernama Kaldi, seorang penggembala kambing. Ia selalu memperhatikan bahwa kambingnya selalu menunjukkan gejala gembira setelah menggigit biji dan daun suatu tanaman hijau. Karena penasaran, ia mencoba biji tanaman tersebut dan merasakan efek semangat serta gembira. Akhirnya penemuan ini menyebar dari mulut ke mulut, sejak itu lahirlah kopi menurut legenda di Arab.
+
+Pada tahun 1610, tanaman kopi pertama ditanam di daerah India. Bangsa Belanda mulai mempelajari pengembangbiakan kopi pada tahun 1614. Lalu pada tahun 1616, mereka berhasil memperoleh bibit dan tanaman kopi yang subur dan langsung mendirikan perkebunan kopi di Srilanka dan tanah Jawa (Indonesia) pada tahun 1699. Kemudian oleh bangsa Belanda, tanaman ini disebar ke koloni Belanda di Amerika Tengah seperti di Suriname dan Kepulauan Karibia. Kemudian bangsa Perancis juga tertarik dengan perdagangan kopi ini. Mereka membeli bibit kopi dari Belanda lalu dikembangkan di Pulau Réunion sebelah timur Madagaskar. Namun mereka gagal mengembangkan kopi di sini. Lalu pada tahun 1723, bangsa Perancis mencoba mengembangkan tanaman kopi di daerah Pulau Martinik. Pada tahun 1800-an, tanaman kopi dikembangkan di Hawaii. Belakangan tanaman ini juga dikembangkan di Brasil dan daerah-daerah lainnya.
+
+Artikel ini berjudul "Kopi, Secangkir Minuman yang Nikmat" dan dapat dibaca selengkapnya dengan klik tautan berikut: https://kumpulan.info/sehat/kopi-minuman-nikmat
+
+Silahkan kunjungi situs web www.kumpulan.info untuk artikel menarik lainnya.</p>
